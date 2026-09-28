@@ -1,1 +1,1 @@
-Full profile, research and CV → mkchun9.github.io
+Full profile, research and CV → https://mkchun9.github.io
